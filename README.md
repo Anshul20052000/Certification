@@ -1,2 +1,2 @@
 # Certification
-Certificates which I have gained
+📜 Showcasing my official certifications earned through hands-on assessments and industry-recognized platforms.
